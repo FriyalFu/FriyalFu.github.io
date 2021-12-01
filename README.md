@@ -1,0 +1,1 @@
+# FriyalFu.github.io
